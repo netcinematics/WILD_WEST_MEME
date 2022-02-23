@@ -37,6 +37,8 @@ Telegram:
 
 ETH:
 
+#INFJ-A
+
 ----
 
 CONTAINS: IMG, VID, GIF - ALL GNU3
