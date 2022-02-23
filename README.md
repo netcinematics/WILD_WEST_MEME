@@ -30,11 +30,15 @@ Digital-Creator, Innovator, Mentor at ETHDENVER 2022, & super-pro dev.
 Life-long Mile-High-Coloradan, Business Owner, good guy, artist & dad.
 
 CONTACT ME: alpinefalcon ( at ) protonmail.com
+
 LINK TREE:
 
 Telegram:
+
 ETH:
 
 ----
 
-CONTAINS: IMG, VID, GIF, GNU3
+CONTAINS: IMG, VID, GIF - ALL GNU3
+
+Use it, change it, do whatever you want, contact me if you want. ~ : )
