@@ -16,8 +16,7 @@ Those dance moves ... (~~wisdom~~) of Vitalik Buterin.
 
 YOU ARE FREE TO MEME THIS VIDEO
 
-**
- - SEND TO A FRIEND! - **
+- SEND TO A FRIEND! - 
 
 ...FROM THE BUFFICORN BUIDL BRIGADE...
 
