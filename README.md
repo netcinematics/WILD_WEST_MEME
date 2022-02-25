@@ -27,7 +27,10 @@ Thank you ETHDenver 2022
 
 ## With SPECIAL THANKS to: 
 
-SporkDAO, ColoradoJam, Jared Polis, Colorado, Denver, John Paller, Opolis, the BUFFICORNS, the Buidlrs, the Mentors, the BountyHunters, the AfterPartiers, Ethereum, Vitalik Buterin, the SPONSORS of ETHDENVER2022 - it was a BLAST!
+SporkDAO, ColoradoJam, Jared Polis, Colorado, Denver, John Paller, Opolis, the BUFFICORNS, the Buidlrs, the Mentors, the BountyHunters, the AfterPartiers, Ethereum, Vitalik Buterin, the SPONSORS of ETHDENVER2022. It was a BLAST!
+
+
+# WILD_WILD_WEST_ETH
 
 ## ... by SPAZEFALCON ... 
 
