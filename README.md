@@ -6,11 +6,15 @@
 
 A PUBLIC GOOD, to make YOU laugh. 
 
+Satire/Parody to Educate, and
+
 To IMMORTALIZE the moment... 2/2022.
 
 Do you REMEMBER?
 
 Those dance moves ... (~~wisdom~~) of Vitalik Buterin.
+
+Thank you ETHDenver 2022.
 
 ----
 
@@ -20,10 +24,6 @@ YOU ARE FREE TO MEME THIS VIDEO
 
 ...FROM THE BUFFICORN BUIDL BRIGADE...
 
-Thank you ETHDenver 2022
-
-#BUFFICORNBUIDLBRIGADE #ETHDenver2022 #ETHDenverMentors
-
 ## With SPECIAL THANKS to: 
 
 SporkDAO, ColoradoJam, Jared Polis, Colorado, Denver, John Paller, Opolis, the BUFFICORNS, the Buidlrs, the Mentors, the BountyHunters, the AfterPartiers, Ethereum, Vitalik Buterin, the SPONSORS of ETHDENVER2022. It was a BLAST!
@@ -31,11 +31,15 @@ SporkDAO, ColoradoJam, Jared Polis, Colorado, Denver, John Paller, Opolis, the B
 
 # WILD_WILD_WEST_ETH
 
-An Englorious Satire Meme.
-
-## ... by SPAZEFALCON ... 
+MEME for educating public of crypto culture.
 
 Just some images I took, of my PC, in the moment, & wanna remember it.
+
+Then the Image were loaded from Phone to PC. 
+
+Edited with Camtasia, to add new perspective, and humor.
+
+## ... by SPAZEFALCON ... 
 
 Digital-Creator, Innovator, Mentor at ETHDENVER 2022, & super-pro dev.
 
@@ -45,20 +49,18 @@ awesome digital-artist & good guy --> Looking for COOL COLLABs!
 
 ## CONTACT ME: alpinefalcon ( at ) protonmail.com
 
-LINK TREE: 
+LINK TREE: https://linktr.ee/spazefalcon
 
-Telegram:
-
-ETH:
+Telegram: @spazefalcon
 
 #INFJ-A
 
 ----
 
-## CONTAINS: IMG, VID, GIF - ALL GNU3.
+## CONTAINS: VIDEO GNU3.
 
-Music by SpazeFalcon. HyperGlitch_V444_AAA.
+Use MEME, change it, do whatever you want, contact me if you want.
 
-Use it, change it, do whatever you want, contact me if you want. 
+Music by SpazeFalcon. HyperGlitch_V444_AAA copyright 2022.
 
 ~ : )
