@@ -31,6 +31,8 @@ SporkDAO, ColoradoJam, Jared Polis, Colorado, Denver, John Paller, Opolis, the B
 
 # WILD_WILD_WEST_ETH
 
+An Englorious Satire Meme.
+
 ## ... by SPAZEFALCON ... 
 
 Just some images I took, of my PC, in the moment, & wanna remember it.
