@@ -39,6 +39,8 @@ Then the Image were loaded from Phone to PC.
 
 Edited with Camtasia, to add new perspective, and humor.
 
+Synchornized to AUDIO by spazefalcon.
+
 ## ... by SPAZEFALCON ... 
 
 Digital-Creator, Innovator, Mentor at ETHDENVER 2022, & super-pro dev.
@@ -57,10 +59,12 @@ Telegram: @spazefalcon
 
 ----
 
-## CONTAINS: VIDEO GNU3.
+## CONTAINS: VIDEO GNU3, IMG GNU3.
 
 Use MEME, change it, do whatever you want, contact me if you want.
 
 Music by SpazeFalcon. HyperGlitch_V444_AAA copyright 2022.
+
+NetCinematics llc.
 
 ~ : )
